@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KabeloSelf
 - 👀 I’m interested in Coding/programming
-- 🌱 I’m currently learning Business Information Technonolgy
+
 - 💞️ I’m looking to collaborate on exciting projects that involve programming
 - 📫 How to reach me,https://www.instagram.com/kabeloself?igsh=ZTB1cDIzamhkajF0&utm_source=qr
 - 😄 Pronouns: Him
